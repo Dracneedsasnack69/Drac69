@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @Dracneedsasnack69
+- 👀 I’m interested in learning all about this Metaverse that I now call Home...
+- 🌱 I’m currently learning as much as my Leisurely time allows..
+- 💞️ I’m looking to collaborate on this Grand Adventure...
+- 📫 How to reach me is to come over so we can quench our thirst on this Journey ...
+
+<!---
+Dracneedsasnack69/Dracneedsasnack69 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
